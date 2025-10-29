@@ -1,0 +1,1 @@
+Datarithmus hazırlık ödevleri
